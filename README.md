@@ -1,2 +1,0 @@
-# xenofeminism
-The manifesto.
